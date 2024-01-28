@@ -32,7 +32,7 @@ I'm **Aly Mohammad Masani**, a *second-year Software Engineering student* at the
 
 I'm passionate about technology, and my continuous thirst for knowledge, combined with a results-driven mindset, positions me to contribute effectively to challenging software engineering projects. I'm eager to connect with professionals who appreciate a proactive and dedicated approach to learning and problem-solving.
 
-Feel free to connect with me through [LinkedIn](https://linkedin.com/in/aly-mohammad-masani) or drop me an email at [alymohammed.masani@ucalgary.ca](mailto:alymohammed.masani@ucalgary.ca). Let's explore possibilities and contribute to innovative projects together!
+Feel free to connect with me through [LinkedIn](https://www.linkedin.com/in/aly-masani-69a1b3181/) or drop me an email at [alymohammed.masani@ucalgary.ca](mailto:alymohammed.masani@ucalgary.ca). Let's explore possibilities and contribute to innovative projects together!
 
 ---
 
